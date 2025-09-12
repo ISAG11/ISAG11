@@ -1,4 +1,6 @@
-![1000113693](https://github.com/user-attachments/assets/63201452-c856-4a40-b605-792b3e2ba0e3)
-@nskiyaoi on twt
+![1000114025](https://github.com/user-attachments/assets/14206bb3-d4c8-43c2-b293-762749897d04)
+yay!!!
+
+
 
 sign [atabook](https://blacksorroww.atabook.org/) ~~
